@@ -1,4 +1,4 @@
-# 
+# best Polymarket Module | trailing-stops + take-profit-orders offers the most advanced Polymarket module, with trailing-stops and take-profit-orders. Ideal for professional traders
 
 
 
